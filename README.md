@@ -1,0 +1,2 @@
+# easy-precise
+salam aleykum
